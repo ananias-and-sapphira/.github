@@ -1,1 +1,3 @@
-# .github
+# *The Story of Ananias and Sapphira – A Lesson in Truth*
+## *Discover the powerful and shocking Bible story of Ananias and Sapphira from the Book of Acts. This animated retelling explains how a couple’s hidden lie led to unexpected consequences, teaching a timeless lesson about honesty, integrity, and faith. In the early Christian church, generosity was celebrated—but what happens when someone pretends to be more generous than they really are? This story reveals a deeper message about truth, authenticity, and the dangers of deception. Watch till the end to understand why this story still matters today and how it connects to our everyday lives.* [More details…](https://spiritualkhazaana.com/web-stories/the-story-of-ananias-and-sapphira/)
+## #BibleStory #AnaniasAndSapphira #ChristianContent #BibleExplained #Faith #BibleLessons #AnimatedStory #ChristianReels #SpiritualGrowth #TruthMatters #GodsWord #Acts5 #BibleAnimation #MoralStories #ViralVideos
